@@ -20,7 +20,7 @@
 
 ## 📹 视频演示
 
-项目演示视频：[点我访问喵~](https://pan.baidu.com/s/1nd9_9YR9x6MiAEGz2l18GA?pwd=6666)
+项目演示视频：[点我查看喵~](https://pan.baidu.com/s/1nd9_9YR9x6MiAEGz2l18GA?pwd=6666)
 
 ---
 
